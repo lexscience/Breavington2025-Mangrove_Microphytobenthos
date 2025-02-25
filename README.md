@@ -1,4 +1,4 @@
-# Mapping the importance of microphytobenthos on blue carbon storage in arid mangrove ecosystems![image](https://github.com/user-attachments/assets/6b3af7dc-4b74-4174-8e21-6e8c854ad300)
+# Mapping the importance of microphytobenthos on blue carbon storage in arid mangrove ecosystems
 
 Authors | Jessica Breavington, Larissa Frühe, Chuancheng Fu, Alexandra Steckbauer, Shannon Klein, Christopher Hempel, and Carlos M. Duarte
 
